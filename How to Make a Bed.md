@@ -8,7 +8,7 @@ Besides the subliminal benefit, a made-bed makes your room look tidy and organiz
 ## Making Your Bed
 It is not that difficult to make your bed. 
 
-**To make your bed well**
+**To make your bed**
 
  1. Start from scratch by taking off all the sheets, pillows, or any other items you may have on your bed.
  2. Dust down the mattress.
