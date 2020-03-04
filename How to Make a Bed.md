@@ -14,7 +14,7 @@ It is not that difficult to make your bed.
  2. Dust down the mattress.
  3. Take the bedsheet and spread it over the mattress.
  4. Tuck the corners deep and tight, and then tuck the bedsheet tightly along the entire line of the bed.
- 5. Down down the bedsheet to remove any accumulated dust from the previous day.
+ 5. Dust down the bedsheet to remove any accumulated dust from the previous day.
  6. Lastly, place the pillows neatly beside one another.
 
 You are done. :)
